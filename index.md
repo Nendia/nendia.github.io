@@ -10,3 +10,5 @@ Liebenswerte Schurkin mit einem kleinen Frettchen Namens Gwin als treuer Begleit
 Sprichwort:
 
 > Geld geklaut? Ich? NIEMALS!
+
+<img src="https://i.pinimg.com/564x/00/0d/de/000dde5575fce2d683734dbab70f82c1.jpg"/>
